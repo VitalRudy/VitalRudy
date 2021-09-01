@@ -4,7 +4,9 @@
 #### -  :high_brightness: I’m currently working on self control :) :high_brightness:
 #### - 📫 How to reach me: :postbox:
 ----------------------
-#### rudyandvital@gmail.com  :mailbox:
+#### Connect with me:
+______________________
+rudyandvital@gmail.com  :mailbox:
 ----------------------
 #### http://t.me/VitalRudy  :calling:
 ----------------------
